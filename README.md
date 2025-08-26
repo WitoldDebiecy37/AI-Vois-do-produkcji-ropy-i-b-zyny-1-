@@ -1,0 +1,1 @@
+# AI-Vois-do-produkcji-ropy-i-b-zyny-1-
